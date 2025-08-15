@@ -32,4 +32,4 @@ They are part of my learning journey as a **CSE-AIML student** aspiring to work 
 ---
 
 📧 **Contact:** [choudharibhoomika@gmail.com](choudharibhoomika@gmail.com)  
-🔗 **LinkedIn:** [Bhoomika Choudhari](https://linkedin.com/in/yourprofile](https://www.linkedin.com/in/bhoomika-choudhari-0616a2274/))
+🔗 **LinkedIn:** [linkedin.com/in/bhoomika-choudhari-0616a2274/](https://www.linkedin.com/in/bhoomika-choudhari-0616a2274/)
